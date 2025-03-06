@@ -50,11 +50,7 @@
 
 ## 获取方式代码直接免费下载，部署链接日后更新在b站，免费！！！
 
-创作不易，可以的话打赏三瓜俩枣
+## 创作不易，可以的话打赏三瓜俩枣
 
-![211033f9f9a9f8a99db4e2e48691912](../WeChatDoc/WeChat%20Files/wxid_wg5kwyptlrwo22/FileStorage/Temp/211033f9f9a9f8a99db4e2e48691912.jpg)
-
-![4ee22aa4dc9889566a5f3752720460f](../WeChatDoc/WeChat%20Files/wxid_wg5kwyptlrwo22/FileStorage/Temp/4ee22aa4dc9889566a5f3752720460f.jpg)
-
-
+![image-20250306114125723](https://raw.gitmirror.com/Withnoidea/PicGoDemo/blog/img/202503061141855.png)
 
